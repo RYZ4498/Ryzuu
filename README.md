@@ -1,2 +1,0 @@
-# Ryzuu
-Anak Kucayyy
